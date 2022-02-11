@@ -1,4 +1,4 @@
-# -
+# On the Press (Korean Version)
 블록체인 기반 부동산 플랫폼, 사하라 스트리트 LLC
 
 
